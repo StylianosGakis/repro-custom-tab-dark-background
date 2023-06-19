@@ -1,0 +1,1 @@
+https://github.com/StylianosGakis/repro-custom-tab-dark-background/assets/44558292/b27d40dc-328b-4d84-b709-20ff24f95aa6
